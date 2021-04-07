@@ -1,6 +1,6 @@
 # Política de Privacidad, Matematicas secundaria
-* Efectiva desde: 21 de Marzo de 2021.
-* Última revisión: 26 de Marzo de 2021.
+* Efectiva desde: 26 de Marzo de 2021.
+* Última revisión: 7 de Abril de 2021.
 
 
 ## Introducción
